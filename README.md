@@ -1,1 +1,0 @@
-# yoga-park-joy
